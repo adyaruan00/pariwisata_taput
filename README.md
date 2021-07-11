@@ -1,0 +1,1 @@
+# pariwisata_taput
